@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @crystalj007
 - 👀 I’m interested in swimming, hiking and cooking
 - 🌱 I’m currently studying Mechatronic Engineering
-- 💞️ I’m looking gain experience in the eletrical engineering industry
+- 💞️ I’m looking to gain experience in the eletrical engineering industry
 - 📫 How to reach me: crystaljaftha007@gmail.com
 
 <!---
